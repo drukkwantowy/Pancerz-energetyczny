@@ -4,3 +4,4 @@ Dzięki takiej wiedzy można pozyskać materiały jak stal która może mieć pa
 Otwiera też to drogę do zmiany właściwości szkła na jego pamięć jak i elastyczność co spowoduje że szkło będzie jak guma i nigdy nie zniszczy się.
 Owa technologia daje też możliwości dzięki użyciu anotechnologi do uwięzienia energii elektrycznej lub magnetycznej w dowolnej materii można uwięzić dzięki temu pole magnetyczne w kamieniu lub pioruna plazme w kuli ze szkła co będzie wiecznym źródłem energii elektrycznej. 
 Drukarki kantowe dają też możliwości programowania cieczy aby ona sama się replikowała kiedy jej zabraknie czyli będzie inteligentna taka ciecz może być mydłem które raz zostanie nalane i replikuje się bez konieczności wlewania nowego mydła do zbiornika na mydło. 
+Pancerz starka bez moich ulepszeń jest jak folia na chłopcu z drewna. 
