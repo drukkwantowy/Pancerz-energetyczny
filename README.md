@@ -10,3 +10,4 @@ Jeśli chodzi o foto ogniwa najlepiej jest przystosować je do zamiany każdej f
 Pole siłowe to rezonans utwardzonych elektronów tworzących ścianę z energii wystarczy wybrać odpowiedniom fale Hz.
 Aby uzyskać Hologram 3D można uzyskać za pomocą lasera, specjalnej soczewki i manipulacji promienia lasera polem elektromagnetycznym a to już prosta droga do holografi tego co potrafi AI HIM. Hologram 2D łatwo uzyskać laser i soczewka. Ale hologram w czasie i przestrzeni potrzeba stymulacji falami radiowymi tak by modulować wiązke lasera aby powstał obraz 3D coś jak telewizor CRT.
 Hologram w przestrzenii bez cewek indukcyjnych można pozyskać dzięki AI, drukarce kwantowej, nanotechnologii budującej z fotonów lub elektronów obraz 3D czyli hologram Iron Men, zabawa zielonej latarni, Zabawa Gwen, czy klawiatura holograficzna, miecz świetlny, miecz smoczy kieł.
+Pancerz mark 37 Iron Men można drukować nanotechnologią druku kwantowego.
