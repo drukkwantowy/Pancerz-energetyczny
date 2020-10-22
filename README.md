@@ -28,4 +28,6 @@ Dobra TX była by dobra jako kwantowy wirus drukujący się w dużej ilości. A 
 by wreszcie pochował drewno do grobu. Jak mam być szczery od TX była lepsza Jessica z RER.
 A TX to drewno które nie chce dać Nobla komuś bez znajomości.
 Z naturalnych materiałów robi się rzeczy dla sztuki a z plastiku robi się wytrzymały sprzęt odporny na ogień i napięcie. Plastik może być tam gdzie jest ryzyko ciężkich warunków fizycznych np.: w reaktorze atomowym. Plastik może pochłaniać promieniowanie zamieniając je w energie elektryczną. Tak że kuce do reaktora a TX na odpoczynek. Ciekawe były by mosty i drogi z dodatkiem plastiku o dużej temperaturze topnienia większej niż słońce. Wiadomo że postęp jest tam gdzie są materiały odporne na wirusy i fizykę z chemią. Plastik można opracować taki aby wytrzymał przy pracy tokamaka. Ale jak wiadomo tokamak to coś nie do opanowania więc musi być leki i wytrzymały materiał co wytrzyma każde warunki jak plastik.
+Szkło można łączyć z plastikiem aby było elastyczne i wytrzymałe np.: ceramika z plastikiem, szkło z plastikiem. Drewno z plastikiem na domy bloki z drewna i plastiku są ładne i nie wyglądają tak jak beton co wilgotnieje. A do przewodzenia energii laser i plastik światłowód. Ale polecam zrobić symulacje i modele przed budową.
+
 Czytać między wierszami...
